@@ -41,3 +41,8 @@ cm cxzm xcmz zxm xc
 vc,x vmzx ,z
 zxm zxm z,
 ndcasncamna
+r2e
+ed3r3
+d3rf3
+3r3
+f
